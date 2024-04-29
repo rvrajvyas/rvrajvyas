@@ -38,7 +38,7 @@
 ### Let's Connect!
 - 📫 **Email**: raj26vyas@gmail.com
 - 📱 **Phone**: +91 9521844845
-- 💼 **LinkedIn**: [Raj Vyas](#) *(Coming soon!)*
+- 💼 **LinkedIn**: [Raj Vyas](#) https://www.linkedin.com/in/rv-rajvyas/
 
 
 <!---
